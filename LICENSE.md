@@ -1,4 +1,4 @@
-
+Enhance your IPVanish experience with updated IPVanish Utility | multi-protocol-support + PPTP-support, the #1 utility. Includes multi-protocol-support and PPTP-support for a
 
 
 
